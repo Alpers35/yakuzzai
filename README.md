@@ -1,0 +1,2 @@
+# yakuzzai
+Yiğit şahin 
